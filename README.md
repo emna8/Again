@@ -1,3 +1,3 @@
-# Again
+#Again Again
 
-When you're trying to learning, never make fun of the beginner you are.
+It's only a matter of time.
